@@ -1,6 +1,6 @@
 # Menavigasi Dunia Kripto dengan Proxy Residensial
 
-![Crypto 2023](https://media.vneconomy.vn/images/upload/2023/03/21/crypto-2023.png)
+![Crypto 2023](https://news.tokocrypto.com/wp-content/uploads/2021/04/Bitcoin-and-also-the-Blockchain.jpeg)
 
 **Tetap selangkah lebih maju di dunia DeFi—[jelajahi jaringan 9Proxy](https://9proxyofficial.short.gy/github-homepage-nathan275)!**
 
